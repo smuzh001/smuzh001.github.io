@@ -1,1 +1,1 @@
-My currrent website portfolio thanks to Unsplash (HTMLUP for the template)
+My currrent website portfolio
